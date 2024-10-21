@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ggggg-g
+- 👀 I’m interested in @ggggg-g
+- 🌱 I’m currently learning @ggggg-g
+- 💞️ I’m looking to collaborate on @ggggg-g
+- 📫 How to reach me @ggggg-g
+- 😄 Pronouns: @ggggg-g/@ggggg-g
+- ⚡ Fun fact: @ggggg-g
